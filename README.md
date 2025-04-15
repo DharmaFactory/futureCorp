@@ -9,7 +9,7 @@ Read that again. Never forget it.
 futureCorp 102:
 
 A still mind sets the course. Values chart the path.  
-Thought fuels the journey. Action moves the way.  
+Thought fuels the journey. Action leads the way.  
 Work leaves the imprint.  
 You are leadership now. Re-read 101.
 
