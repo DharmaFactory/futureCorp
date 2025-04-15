@@ -3,7 +3,7 @@ futureCorp Principles
 futureCorp 101:
 
 Leadership exists to serve you, in serving the customer.  
-Who you ALL ultimately are.  
+Who we ALL ultimately are.  
 Read that again. Never forget it.
 
 futureCorp 102:
